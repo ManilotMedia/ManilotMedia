@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ManilotMedia
 - 👀 I’m interested in online media
-- 🌱 I’m currently learning myselt
+- 🌱 I’m currently learning myself
 - 💞️ I’m not looking to collaborate on ...
 - 📫 How to reach me: info@manilot.cz
 
